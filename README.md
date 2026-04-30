@@ -1,5 +1,5 @@
 Política de Privacidade - Minha Super Capivara
-Última atualização: 20/04/2026
+Última atualização: 30/04/2026
 A sua privacidade é importante para nós. Esta política explica como o aplicativo Minha Super Capivara lida com suas informações.
 1. Coleta de Informações
 O aplicativo Minha Super Capivara foi desenvolvido para ser um jogo offline.
